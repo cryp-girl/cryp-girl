@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cryp-girl
+- 👀 I’m interested in coding and blockchain technology
+- 🌱 I’m currently learning social influencing
+- ⚡ Fun fact: Do what you want to do
